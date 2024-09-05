@@ -1,6 +1,6 @@
 hey i'm daniel, or you guys can js call me skitz.
 
-i'm still a student (currently a yr 10 @ chu van an hs, hanoi) 
+i'm still a student (currently a yr 10 in chu van an hs, hanoi) 
 
 *socials*
 - [**Discord**](https://discord.com/users/480365856707182603)
