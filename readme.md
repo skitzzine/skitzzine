@@ -1,6 +1,8 @@
-hey i'm daniel, or you guys can js call me skitz.
+hey i'm daniel, or you guys can call me skitz.
 
-i'm still a student (currently a yr 10 in chu van an hs, hanoi) 
+i'm still a student so i don't have much activity here my bad.
+lua/python intermediate user
+C beginner
 
 *socials*
 - [**Discord**](https://discord.com/users/480365856707182603)
