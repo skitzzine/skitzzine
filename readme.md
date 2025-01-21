@@ -1,9 +1,10 @@
 hey i'm daniel, or you guys can call me skitz.
 
 i'm still a student so i don't have much activity here my bad.
+<br>
 lua/python intermediate user
 C beginner
-
+<br>
 *socials*
 - [**Discord**](https://discord.com/users/480365856707182603)
 (All of my other contacts are linked to my Discord profile.)
